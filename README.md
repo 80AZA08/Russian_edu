@@ -1,1 +1,1 @@
-This page is for proving Russian language knowledge.
+This page is for improving Russian language knowledge.
